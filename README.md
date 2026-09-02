@@ -53,7 +53,7 @@ No build tools or installation are required.
 
 ## Contact
 
-- **Email:** margie@example.com
+- **Email:** malatemargie794@gmail.com
 
 > Replace the sample email address with the real professional email before publishing the portfolio.
 
